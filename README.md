@@ -1,2 +1,2 @@
 # Hello-world
-Wheres the funny side
+Where is the funny side?
